@@ -1,0 +1,1 @@
+boil the water in a utensil .After the water starts boiling put the noodles and after 
